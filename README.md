@@ -1,4 +1,4 @@
-# 🎬 Vlogs with Karthik - Official Creator Website
+# 🎬 My Vlogs with Karthik - Official Creator Website
 
 > **“Capturing Life, One Vlog at a Time.”**  
 > *Life. Friends. Travel. Memories.*
